@@ -1,1 +1,1 @@
-# CzB_LLM
+# My personal LLM assistant
