@@ -1,0 +1,1 @@
+As a 22-year-old university student, I prioritize continuous self-improvement. I enjoy facing new challenges. I consider myself a conscientious, persistent, precise, and organized person with a strong work ethic and excellent problem-solving skills. My primary goal is to learn and improve myself both professionally and personally.
